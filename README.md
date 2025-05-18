@@ -1,4 +1,3 @@
-Computer engineering student 
-Java and Html user
-currently learning unity and Roblox game studio
+Computer engineering student, 
+
  Discord = Metaljohn_
